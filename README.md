@@ -4,7 +4,7 @@ $\color{#8a1f1d}{Batman}$ $\color{#B0A296}{to}$ $\color{#B0A296}{the}$ $\color{#
 <img src= "https://media.discordapp.net/attachments/883166258126782494/1294080335801483284/49fa1556d178106bf1e28cf5f7a42885.gif?ex=670a5e7a&is=67090cfa&hm=3ad1bc43f6b878f1d95e8dca06f5296957cb5a5675d40b5c14dbae83ccb9d5e1&" width="ancho" height="alto"/>
 
 
-$\color{#8a1f1d}{Julian.}$ $\color{#5a5e64}{17yo.}$ $\color{#8a1f1d}{(}$<img src= "https://media.discordapp.net/attachments/883166258126782494/1294384717516374158/ed530c3a478f5389b009e91446f89dca.jpg?ex=670ad135&is=67097fb5&hm=12b0b5d27c2edce561a4db8bd46c7c14e9c53d1a0e1173995f5fff4277107e45&" width="15" height="10"/>$\color{#8a1f1d}{)}$
+$\color{#B0A296}{    Julian⋆}$ $\color{#5a5e64}{  𖥻‎   07 "⠀  }$ $\color{#8a1f1d}{★.}$ $\color{#5a5e64}{17yo}$ $\color{#8a1f1d}{(}$<img src= "https://media.discordapp.net/attachments/883166258126782494/1294384717516374158/ed530c3a478f5389b009e91446f89dca.jpg?ex=670ad135&is=67097fb5&hm=12b0b5d27c2edce561a4db8bd46c7c14e9c53d1a0e1173995f5fff4277107e45&" width="15" height="10"/>$\color{#8a1f1d}{)}$
 
 $\color{#8a1f1d}{ ┈─}$
 
