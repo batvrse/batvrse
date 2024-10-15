@@ -1,7 +1,7 @@
 $\color{#5a5e64}{“Julian,}$ $\color{#B0A296}{as}$ $\color{#B0A296}{i}$ $\color{#B0A296}{like}$ $\color{#B0A296}{to}$ $\color{#B0A296}{call}$ $\color{#B0A296}{me–}$
 $\color{#8a1f1d}{Batman}$ $\color{#B0A296}{to}$ $\color{#B0A296}{the}$ $\color{#B0A296}{rest}$ $\color{#B0A296}{of}$ $\color{#B0A296}{the}$ $\color{#B0A296}{world.”}$
 
-<img src= "https://media.discordapp.net/attachments/883166258126782494/1294080335801483284/49fa1556d178106bf1e28cf5f7a42885.gif?ex=670a5e7a&is=67090cfa&hm=3ad1bc43f6b878f1d95e8dca06f5296957cb5a5675d40b5c14dbae83ccb9d5e1&" width="ancho" height="alto"/>
+<img src= "https://media.discordapp.net/attachments/883166258126782494/1294080335801483284/49fa1556d178106bf1e28cf5f7a42885.gif?ex=670fa47a&is=670e52fa&hm=42c8b9d4689c534ef606c2b9cfbcc61b5fcf9e18c02c8596b8050b6238b66893&" width="ancho" height="alto"/>
 
 
 $\color{#B0A296}{    Julian⋆}$ $\color{#5a5e64}{  𖥻‎   07 "⠀  }$ $\color{#8a1f1d}{★.}$ $\color{#5a5e64}{17yo}$ $\color{#8a1f1d}{(}$<img src= "https://media.discordapp.net/attachments/883166258126782494/1294384717516374158/ed530c3a478f5389b009e91446f89dca.jpg?ex=670ad135&is=67097fb5&hm=12b0b5d27c2edce561a4db8bd46c7c14e9c53d1a0e1173995f5fff4277107e45&" width="15" height="10"/>$\color{#8a1f1d}{)}$
