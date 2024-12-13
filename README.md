@@ -1,7 +1,7 @@
 $\color{#5a5e64}{“Julian,}$ $\color{#B0A296}{as}$ $\color{#B0A296}{i}$ $\color{#B0A296}{like}$ $\color{#B0A296}{to}$ $\color{#B0A296}{call}$ $\color{#B0A296}{me–}$
 $\color{#8a1f1d}{Batman}$ $\color{#B0A296}{to}$ $\color{#B0A296}{the}$ $\color{#B0A296}{rest}$ $\color{#B0A296}{of}$ $\color{#B0A296}{the}$ $\color{#B0A296}{world.”}$
 
-<img src= "https://media.discordapp.net/attachments/883166258126782494/1299714991166853171/49fa1556d178106bf1e28cf5f7a42885.gif?ex=67237b69&is=672229e9&hm=ecd7c5e6d6b7be145eafacce2436fe7b9d1c2c48040175f62bf6b8f210977f34&" width="ancho" height="alto"/>
+<img src= "https://files.catbox.moe/oiym0y.gif" width="ancho" height="alto"/>
 
 
 $\color{#B0A296}{    Julian⋆}$ $\color{#5a5e64}{  𖥻‎   07 "⠀  }$ $\color{#8a1f1d}{★.}$ $\color{#5a5e64}{17yo}$ $\color{#8a1f1d}{(}$<img src= "https://media.discordapp.net/attachments/883166258126782494/1299714991703986306/ed530c3a478f5389b009e91446f89dca.jpg?ex=671e3569&is=671ce3e9&hm=acdf29c0e35f547922aa11dde7f629e9994d2b1042b904d1390215ecb9722790&" width="15" height="10"/>$\color{#8a1f1d}{)}$
